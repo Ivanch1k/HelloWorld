@@ -1,4 +1,0 @@
-# HelloWorld
-
-JIOjraep
-KAKAYTO *YINjA
